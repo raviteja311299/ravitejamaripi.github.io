@@ -1,1 +1,0 @@
-# ravitejamaripi.github.io
